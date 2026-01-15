@@ -1,0 +1,2 @@
+Joffrey Baratheon
+Cersei Lannister
